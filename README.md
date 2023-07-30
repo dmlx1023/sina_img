@@ -11,3 +11,6 @@ https://www.123pan.com/s/B4I5Vv-oxFsH.html提取码:u2gp
 https://www.aliyundrive.com/s/aCG5G3cXV19
 提取码: uf41
 点击链接保存，或者复制本段内容，打开「阿里云盘」APP ，无需下载极速在线查看，视频原画倍速播放。
+我用夸克网盘分享了「0-先保存再下载，防止被河蟹.jpg」，点击链接即可保存。打开「夸克APP」，无需下载在线播放视频，畅享原画5倍速，支持电视投屏。
+链接：https://pan.quark.cn/s/7a78d8d52762
+提取码：x5Gq
