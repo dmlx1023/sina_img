@@ -14,3 +14,6 @@ https://www.aliyundrive.com/s/aCG5G3cXV19
 我用夸克网盘分享了「0-先保存再下载，防止被河蟹.jpg」，点击链接即可保存。打开「夸克APP」，无需下载在线播放视频，畅享原画5倍速，支持电视投屏。
 链接：https://pan.quark.cn/s/7a78d8d52762
 提取码：x5Gq
+
+链接：https://pan.baidu.com/s/1Q5EEiHQGgVl5D8KT9L9d-Q?pwd=52pj
+提取码：52pj
